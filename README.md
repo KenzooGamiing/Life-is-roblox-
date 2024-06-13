@@ -7,3 +7,9 @@ Hello to use that you must know life is roblox....
 ![life is roblox](https://i.ytimg.com/vi/ZBLEkoWgQPE/sddefault.jpg)
 
 and you know what... , roblox is life 
+
+![life is roblox](https://i.kym-cdn.com/editorials/icons/mobile/000/006/208/lirex.jpg)
+
+and yes.....
+
+![life is roblox](https://imgflip.com/gif/8tr1xx)
