@@ -11,3 +11,5 @@ and you know what... , roblox is life
 ![life is roblox](https://i.kym-cdn.com/editorials/icons/mobile/000/006/208/lirex.jpg)
 
 and yes.....
+
+![I love roblox](https://images-ext-1.discordapp.net/external/YOjLHj0dYqAjN7fK-SxsRfDXCLU-GElNP0BpUI3dzZo/https/media.tenor.com/YsOShYBaf4QAAAPo/roblox-meme.mp4)
